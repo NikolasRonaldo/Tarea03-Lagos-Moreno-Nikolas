@@ -1,2 +1,2 @@
-# Tarea03-Lagos-Moreno-Nikolas
+# Integrantes del Grupo
 Nikolas Ronaldo Lagos Moreno - nikolas.lagos@alumnos.uv.cl
